@@ -1,0 +1,4 @@
+Ph.D.
+=====
+
+Philosophiæ doctor
